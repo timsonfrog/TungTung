@@ -1,1 +1,1 @@
-# TungTung
+Open sourced 👍
